@@ -1,1 +1,1 @@
-# Portfolio
+# George Gyamfi, MBA
